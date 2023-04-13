@@ -9,7 +9,7 @@
 </div>
 
 
-# FCG Coin Platform
+# Platform
 
 The entire PEG Coin Ecosystem comprises subsets of the entire FEG Platform Investment Project, as well as related products.
 
