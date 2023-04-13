@@ -1,4 +1,4 @@
-# FEG Coin, The Token Of The Investment Project.
+# Godzilla Coin, The Token Of The Investment Project.
 
 <div align="center"><img src="https://makecoin.live/wp-content/uploads/2023/01/FEG300X300.png)" /><br />
 </div>
