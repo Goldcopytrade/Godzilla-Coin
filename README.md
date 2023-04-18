@@ -1,6 +1,6 @@
 # Godzilla Coin, GOD Token Biggest Crypto Revolution.
 
-<div align="center"><img src="(https://godzillacoin.net/wp-content/uploads/2023/04/TOPGOD-2.fw_.fw_-1.png))" /><br />
+<div align="center"><img src="(https://godzillacoin.net/wp-content/uploads/2023/04/TOPGOD-2.fw_.fw_-1.png)" /><br />
 </div>
 <div align="center">
   <h1><br />
