@@ -1,31 +1,23 @@
-# Godzilla Coin, The Token Of The Investment Project.
+# Godzilla Coin, GOD Token Biggest Crypto Revolution.
 
-<div align="center"><img src="https://makecoin.live/wp-content/uploads/2023/01/FEG300X300.png)" /><br />
+<div align="center"><img src="https://godzillacoin.net/wp-content/uploads/2023/04/TOPGOD-2.fw_.fw_-1.png)" /><br />
 </div>
 <div align="center">
   <h1><br />
-    <a href="https://fegfinnergy.com/" target="_blank">Go To Website<br />
+    <a href="https://godzillacoin.net/" target="_blank">Go To Website<br />
 </a></h1>
 </div>
 
 
-# Platform
+# Detail
 
-The entire PEG Coin Ecosystem comprises subsets of the entire FEG Platform Investment Project, as well as related products.
+Godzilla Token Ecosystem for Decentralized Finance Platform, Swap, Liquidity, Farming, Staking, Cross chain, Launchpad, Gaming, Metaverse, Blockchain. Godzilla Token is a token built upon the Ethereum blockchain. ERC-20, the most common Ethereum token standard format for developers
 
-It is therefore the keystone of the entire system and helps in the development of a comprehensive platform connecting the worlds of  industry blockchain & Crypto
+# Ecosystem
+decentralized exchange, NFTa, Metaverse, Blockchain
 
-# Payment gateway
-FCG Coin ecommerce platform we have create tokens on Binance smart chain as a highly secure blockchain payment gateway with low fees and support for trading on top exchanges. Moreover, our marketing team is expanding as a payment gateway on coinpayment.net our growing partnerships in the future.
-
-# Stake rewards
-Step-by-Step Stake Rewards
-
-Buy token on exchange BNB coin in wallet. Connect wallet and buy token recieve automatic
-
-Keep coins in our wallet Go to swap platform. First connect & confirm wallet, select day token lock, transfer SMP token to the system and comfirm a stake.
-
-Enjoy regular profits You rewards are generated daily until the date lock stake Now it’s time to enjoy your life and finally let your money work for you every day.
+# About us
+Token is coming up with the newest and latest technology on the most trusted blockchain ETH. Godzilla Token has been designed in such way to become the most useful Decentralized Finance token.
 
 # CONTACT Godzilla Coin (GOD)
 
