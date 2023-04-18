@@ -25,8 +25,8 @@ Token is coming up with the newest and latest technology on the most trusted blo
 
 📄 Whitepaper : https://docs.godzillacoin.net
 
-👨 Telegram Group : https://t.me/larrycoinofficial
+👨 Telegram Group : https://t.me/+oRQ12SdrNzo2Yjk1
 
-🔷 Twitter : https://twitter.com/LARRY33ARMY
+🔷 Twitter : https://mobile.twitter.com/GodzillaOfficia
 
 🔒 Smart Contract : https://etherscan.io/token/0xe5d2058ed5816918700723abfb6d1020fd243715
