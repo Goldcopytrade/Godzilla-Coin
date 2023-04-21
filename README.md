@@ -19,7 +19,7 @@ decentralized exchange, NFTa, Metaverse, Blockchain
 # About us
 Token is coming up with the newest and latest technology on the most trusted blockchain ETH. Godzilla Token has been designed in such way to become the most useful Decentralized Finance token.
 
-# CONTACT Godzilla Coin (GOD)
+# Contact Godzilla Coin (GOD)
 
 🌐 Website: https://www.godzillacoin.net
 
