@@ -29,4 +29,4 @@ Token is coming up with the newest and latest technology on the most trusted blo
 
 🔷 Twitter : https://mobile.twitter.com/GodzillaOfficia
 
-🔒 Smart Contract : https://etherscan.io/token/0x11F6DA699c4902C1EC532066C59eDB807bFA4356
+🔒 Smart Contract : https://etherscan.io/token/0x8e5784adc616056b5ef9c267ef16a91e533cc03a
