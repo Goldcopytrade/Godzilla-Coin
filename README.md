@@ -25,7 +25,7 @@ Token is coming up with the newest and latest technology on the most trusted blo
 
 📄 Whitepaper : https://docs.godzillacoin.net
 
-👨 Telegram Group : https://t.me/+oRQ12SdrNzo2Yjk1
+👨 Telegram Group : https://t.me/GodzillOfficial
 
 🔷 Twitter : https://mobile.twitter.com/GodzillaOfficia
 
