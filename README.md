@@ -21,8 +21,4 @@ Token is coming up with the newest and latest technology on the most trusted blo
 
 # Contact Godzilla Coin (GOD)
 
-👨 Telegram Group : https://t.me/GodzillOfficial
-
-🔷 Twitter : https://mobile.twitter.com/GodzillaOfficia
-
 🔒 Smart Contract : https://etherscan.io/token/0x413f0246c12377c2a1c3c325b6fc3a1e5e9a24d7
