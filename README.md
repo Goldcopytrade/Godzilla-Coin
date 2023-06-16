@@ -4,7 +4,7 @@
 </div>
 <div align="center">
   <h1><br />
-    <a href="https://godzillacoin.net/" target="_blank">Go To Website<br />
+    <a href="#/" target="_blank">Go To Website<br />
 </a></h1>
 </div>
 
