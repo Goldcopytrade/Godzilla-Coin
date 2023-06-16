@@ -21,10 +21,6 @@ Token is coming up with the newest and latest technology on the most trusted blo
 
 # Contact Godzilla Coin (GOD)
 
-🌐 Website: https://www.godzillacoin.net
-
-📄 Whitepaper : https://docs.godzillacoin.net
-
 👨 Telegram Group : https://t.me/GodzillOfficial
 
 🔷 Twitter : https://mobile.twitter.com/GodzillaOfficia
